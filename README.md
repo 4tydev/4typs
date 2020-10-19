@@ -5,6 +5,7 @@
 
 
 [Mandfulness](#mindfulness)
+[Breast Cancer Prevention](#bcprevention)
 
 ## Mindfulness ##
 
@@ -32,3 +33,35 @@ Don't be afraid to ask for help: Seriously... everyone needs help! We can't do s
 ### Bonus Tip ###
 
 It's not a tip, just a friendly message that I believe in your hard work! :)
+
+
+
+## Breast Cancer Prevention ##
+
+
+Since October is Breast Cancer Prevention Month. I want to dedicate this 4typ to the most beautiful people in this universe: women! A lot of my followers are either female musicians or music lovers so I want to dedicate this 4typ to you!
+
+
+## Typ 1 ##
+
+
+Always explore yourself continously. Check for lumps and for any type of abnormality if needed! Always try to take care of yourself!
+
+
+## Typ 2 ##
+
+
+If you are over 30, take exams as regularly as possible! The sooner you get to check yourself, the better! It's better to get an experts opinion!
+
+
+## Typ 3 ##
+
+
+Eat healthy and drink or eat as much animal supplements as you can. For example vegetables, fruits, and milks made from soy, almond, etc.
+
+
+## Bonus 4typ ##
+
+Inform other women about the risk of breast cancer. Its always a good idea to talk about your problems to people who have the same fears as you! Always remember that you are strong!!!!!
+
+"Take care" is not just a message, you have to take it seriously.
